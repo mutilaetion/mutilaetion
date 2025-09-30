@@ -1,7 +1,7 @@
 ill unpriv when i finish my readme ok
 <p align="center"><img src="https://files.catbox.moe/2xux7l.png"/>
 </p><p align="left">They say that love is forever...
-   ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<a align="right"> ...You forever is all that i need
+   ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤ<a align="right"> ...You forever is all that i need
 </p>
 <a align="center"><img width="310" src="https://lastfm.dedomil.workers.dev/AUTROCITIY?dark">
 <p align="center"><img src="https://file.garden/Z7-3jqElunno9Cjt/blackdiv1.pnj" align="center" width="100%"></a>
