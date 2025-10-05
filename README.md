@@ -16,7 +16,7 @@
     dni if youre under 15, pro-harassment or any of my ex friends ゛ ⸝⸝.ᐟ⋆<br>
     if it wasnt obvious, i am anti-anti and also dabble in darkshipping. Idgaf if you want to moralfag about it, I don't want to hear about it.<br>
     ⋆˙⟡ c+h is always fine, but I'd rather not be covered. additionally, I am strictly dniuid when im with my boyfriend (who's the only one i really sit with, so you'll know.)<br>
-    if you ever see ne anywhere except the protree with someone, PLEASE do not come up to me, I don't want to lose friends over this.
+    if you ever see me anywhere thats not the protree with someone, PLEASE do not come up to me, I don't want to lose friends over this.
 <p align="center">
    <p align="center"><img src="https://file.garden/Z7-3jqElunno9Cjt/35f3fe8f92be8527b686f650f16449c3178f56e8.pnj"/>
   <p align="center"><img src="https://64.media.tumblr.com/cf058c8d0ebb0d8a6600f7c5e18de595/e745092b82fbeac5-fb/s1280x1920/8200ae10a78b1deebcd32adae638235209e18046.pnj"/>
