@@ -11,28 +11,50 @@
 fagfreak / taken by my victim　҂ㅤ<img src="https://i.postimg.cc/8ChHP4fL/IMG_2002.gif" align="center" > <br>
 dni if under 15  ♱   or pro-hara　═╬<br>
  𓈒 ꒪ if it wasnt obvious, <br>im a bit fucked in the head.<br>
+  <img src="https://i.postimg.cc/661dKgbD/IMG_1990.gif" align="center" width="8%" ><br>
 <details>
-  <summary>━  extend-ish(?)</summary>
+  <summary>━꒰ঌ ໒꒱  extend-ish(?)</summary>
+  <p align="center">
+  I mostly go by Harmless on this alt. but I am a hoarder at heart and have alot of names, same goes for pronouns sets.. I will link everything below :3<br>
+  I am 18 years old, born in 2007 (please keep in mind though that I can act very immature at times, soz)<br>
+  I really like roblox admins and hackers and myths, honestly more than I actually play the game... I really like Merely, he is my favorite.<br>
+  If it wasnt obvious, i am anti-anti and also dabble in darkshipping. Idgaf if you want to moralfag about it, I don't want to hear about it.<br>
+  I am not a kodocon, I have never been a kodocon. Do not accuse me of being a kodocon. Yes, I am proship, but I draw the line at zoophilia. If you think fictional zoophilia is okay (liek feral) then dni, you're gross.<br>
+  I am happily married to my darling boy, we have a beautiful victimxabuser relationship and I love him alot, we are seramerely (even if he doesnt know who they are<3)<br> 
+  If u want to add me anywhere then discord is your best bet, I am mutilaetion on discord aswell, however do keep in mind that this is an alt account and I will not be as active on there as on my main.<br>
+  I am a gross individual, I have gross interests, I do gross things. Be aware<br>
+    <br>
+  DNI if youre pro-harassment, under 15, or anyone i've cut ties with. You know who you are.
+
+  
 </details>
 <br>
-  
+<details>
+  <summary>━꒰ঌ ໒꒱  links</summary>
+  <p align="center">
+  <a href="">atabook(none yet)</a> <a href="https://mutilaetion.straw.page/">strawpage</a> <a href="https://en.pronouns.page/@GEN0CIDER">en.prns</a> <a href="https://pronouns.cc/@rapto/edit">prns.cc(wip)</a> 
+  </details>
+<br>
   <details>
-  <summary>━ hoard of things -?? HEAVY WIP ᛝ </summary>
+  <summary>━꒰ঌ ໒꒱ hoard of things -?? HEAVY WIP ᛝ </summary>
+      everything on here is ffa, idm if u take anything.
+    <br>
            <details>
         <summary>━ buttons </summary>
-     vvv
+     <p align="center">
     </details>
              <details>
         <summary>━ blinkies </summary>
-      <img src="https://file.garden/Z7-3jqElunno9Cjt/blinkiesCafe-EC.gif"width=200 /> <img src="https://file.garden/Z7-3jqElunno9Cjt/blinkiesCafe-HX.gif"width=200 /> <img src="https://file.garden/Z7-3jqElunno9Cjt/blinkiesCafe-yR.gif"width=200 /><br>
+               <p align="center">
+      <img src=""width=200 /> <img src=""width=200 /> <img src=""width=200 /><br>
     </details>
              <details>
         <summary>━ stamps </summary>
-      <img src="https://64.media.tumblr.com/8a6f113f20cc84cb05f4a8b11400866a/d8ca679b81c78522-3a/s100x200/23b5155a2addab355009cd6da1d2c717eaa0ebca.gifv"width=200 />
+      <img src="https://64.media.tumblr.com/8a6f113f20cc84cb05f4a8b11400866a/d8ca679b81c78522-3a/s100x200/23b5155a2addab355009cd6da1d2c717eaa0ebca.gifv"width=100 />
     </details>
              <details>
         <summary>━ flags </summary>
-     
+     <p align="center">
     </details>
      
     </details>
