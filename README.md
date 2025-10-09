@@ -23,7 +23,11 @@
      I am not a kodocon, I have never been a kodocon. Do not accuse me of being a kodocon. Yes, I am proship, but I draw the line at zoophilia. If you think fictional zoophilia is okay (liek feral) then dni, you're gross.<br>
      I am happily married to my darling boy, we have a beautiful victimxabuser relationship and I love him alot, we are seramerely (even if he doesnt know who they are<3)<br>
      If u want to add me anywhere then discord is your best bet, I am mutilaetion on discord aswell, however do keep in mind that this is an alt account and I will not be as active on there as on my main.<br>
-     <img src="https://file.garden/Z7-3jqElunno9Cjt/blinkiesCafe-EC.gif"width=200 /> <img src="https://file.garden/Z7-3jqElunno9Cjt/blinkiesCafe-HX.gif"width=200 /> <img src="https://file.garden/Z7-3jqElunno9Cjt/blinkiesCafe-yR.gif"width=200 /><br>
+     <p align="center">
+        <details>
+        <summary>━ blinkies n things ᛝ </summary>
+      <img src="https://file.garden/Z7-3jqElunno9Cjt/blinkiesCafe-EC.gif"width=200 /> <img src="https://file.garden/Z7-3jqElunno9Cjt/blinkiesCafe-HX.gif"width=200 /> <img src="https://file.garden/Z7-3jqElunno9Cjt/blinkiesCafe-yR.gif"width=200 /><br>
         <img src="https://64.media.tumblr.com/8a6f113f20cc84cb05f4a8b11400866a/d8ca679b81c78522-3a/s100x200/23b5155a2addab355009cd6da1d2c717eaa0ebca.gifv"width=200 />
- <p align="center">     
+    </details>
+    <p align="center">     
 <p align="center"><img src="https://64.media.tumblr.com/fc98722475224d979d79d175771afc2d/2acd9003bd8a50e6-06/s1280x1920/c3f90dc9513fa8a62cfa48fa143f0e3c0bcd16c8.pnj"/>
