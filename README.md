@@ -25,9 +25,24 @@
      If u want to add me anywhere then discord is your best bet, I am mutilaetion on discord aswell, however do keep in mind that this is an alt account and I will not be as active on there as on my main.<br>
      <p align="center">
         <details>
-        <summary>━ blinkies n things ᛝ </summary>
+        <summary>━ hoard of things -?? HEAVY WIP ᛝ </summary>
+           <details>
+        <summary>━ buttons </summary>
+     
+    </details>
+             <details>
+        <summary>━ blinkies </summary>
       <img src="https://file.garden/Z7-3jqElunno9Cjt/blinkiesCafe-EC.gif"width=200 /> <img src="https://file.garden/Z7-3jqElunno9Cjt/blinkiesCafe-HX.gif"width=200 /> <img src="https://file.garden/Z7-3jqElunno9Cjt/blinkiesCafe-yR.gif"width=200 /><br>
-        <img src="https://64.media.tumblr.com/8a6f113f20cc84cb05f4a8b11400866a/d8ca679b81c78522-3a/s100x200/23b5155a2addab355009cd6da1d2c717eaa0ebca.gifv"width=200 />
+    </details>
+             <details>
+        <summary>━ stamps </summary>
+      <img src="https://64.media.tumblr.com/8a6f113f20cc84cb05f4a8b11400866a/d8ca679b81c78522-3a/s100x200/23b5155a2addab355009cd6da1d2c717eaa0ebca.gifv"width=200 />
+    </details>
+             <details>
+        <summary>━ flags </summary>
+     
+    </details>
+     
     </details>
     <p align="center">     
 <p align="center"><img src="https://64.media.tumblr.com/fc98722475224d979d79d175771afc2d/2acd9003bd8a50e6-06/s1280x1920/c3f90dc9513fa8a62cfa48fa143f0e3c0bcd16c8.pnj"/>
