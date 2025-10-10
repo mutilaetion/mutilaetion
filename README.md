@@ -24,6 +24,11 @@ dni if under 15  ♱   or pro-hara　═╬<br>
   If u want to add me anywhere then discord is your best bet, I am mutilaetion on discord aswell, however do keep in mind that this is an alt account and I will not be as active on there as on my main.<br>
   I am a gross individual, I have gross interests, I do gross things. Be aware<br>
     <br>
+⋆˙⟡ c+h is always fine, but I'd rather not be covered. additionally, I am strictly dniuid when im with my boyfriend (who's the only one i really sit with, so you'll know.)<br>
+if you ever see me anywhere thats not the protree with someone, PLEASE do not come up to me, I don't want to lose friends over this. <br>
+Besides that, I am basically always offtab... And even if you W2i i probably won't see it in time... I promise I'm not ignoring you I'm just busy doing fuckall
+    
+
   DNI if youre pro-harassment, under 15, or anyone i've cut ties with. You know who you are.
 
   
