@@ -1,17 +1,17 @@
 <p align="center"><img src="https://file.garden/Z7-3jqElunno9Cjt/rescources/dividers/IMG-1057.png" /> 
-<p align="center"> I BLOCK SPAM FOLLOW ACCOUNTS. I DONT WANT YOU TO GET IN TROUBLE WITH UR FRIENDS OVER ME !!
+<p align="center">   ${\textsf{\color{#f40179}I BLOCK SPAM FOLLOW ACCOUNTS. I DONT WANT YOU TO GET IN TROUBLE WITH UR FRIENDS OVER ME !!}}$
 
 <p align="right"><p align="right"><a href="https://www.last.fm/user/AUTROCITIY"><img align="right" width="300" src="https://lastfm.dedomil.workers.dev/AUTROCITIY?dark"></a> <img src="https://file.garden/Z7-3jqElunno9Cjt/rescources/pngs/untitdled370(2).png"  align="right" width="15%">
 
 
 <p align="center">
-︵ harmlessㅤᵒʳㅤseranok++⠀ ノ <br> 
+︵ harmlessㅤᵒʳㅤ  ${\textsf{\color{#f40179}seranok++}}$⠀ ノ <br> 
 ⠀꒰⠀⠀<img src="https://i.postimg.cc/gkPvS8x7/IMG_2151.gif"  align="center" >⠀⠀␥⠀⠀he⠀·⠀itㅤ<img src="https://file.garden/Z7-3jqElunno9Cjt/rescources/blinkies%20and%20things/buttons/fb9dff7e405adeef757d7fd8bf191a10ccf348ee.gifv" align="center" width="5%" > <br>
-𓏼⠀❛❛ 18yo 𓏵 anti-hara   ───〃⟡ <br>
+${\textsf{\color{#f40179}𓏼⠀❛❛ 18yo 𓏵}}$ anti-hara   ───〃⟡ <br>
 <img src="https://i.postimg.cc/mZzD845p/IMG_1136.png" align="center" width="25%" ><br>
-fagfreak / taken by my victim　҂ㅤ<img src="https://i.postimg.cc/8ChHP4fL/IMG_2002.gif" align="center" > <br>
-dni if under 15  ♱   or pro-hara　═╬<br>
-if it wasnt obvious, <br>im a bit fucked in the head.<br>
+fagfreak / taken by ${\textsf{\color{#f40179}my victim}}$　҂ㅤ<img src="https://i.postimg.cc/8ChHP4fL/IMG_2002.gif" align="center" > <br>
+${\textsf{\color{#f40179}dni if under 15  ♱   or pro-hara　═╬}}$<br>
+if it wasnt obvious, <br>im a bit ${\textsf{\color{#f40179}fucked}}$ in the ${\textsf{\color{#f40179}head}}$.<br>
   <img src="https://i.postimg.cc/661dKgbD/IMG_1990.gif" align="center" width="8%" ><br>
 <details>
   <summary>━꒰ঌ ໒꒱  extend-ish(?)</summary>
