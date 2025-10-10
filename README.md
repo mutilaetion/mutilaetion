@@ -1,5 +1,5 @@
 <p align="center"><img src="https://file.garden/Z7-3jqElunno9Cjt/rescources/dividers/IMG-1057.png" /> 
-<p align="center">   ${\textsf{\color{#f40179}I BLOCK SPAM FOLLOW ACCOUNTS. I DONT WANT YOU TO GET IN TROUBLE WITH UR FRIENDS OVER ME !!}}$
+<p align="center">   ${\textsf{\color{#f40179}I BLOCK SPAM FOLLOW ACCOUNTS. NONE OF U CHECK ANYTHING AND I DONT WANT U TO GET INTO SHIT OVER ME.}}$
 
 <p align="right"><p align="right"><a href="https://www.last.fm/user/AUTROCITIY"><img align="right" width="300" src="https://lastfm.dedomil.workers.dev/AUTROCITIY?dark"></a> <img src="https://file.garden/Z7-3jqElunno9Cjt/rescources/pngs/untitdled370(2).png"  align="right" width="15%">
 
