@@ -51,7 +51,7 @@ Besides that, I am basically always offtab... And even if you W2i i probably won
              <details>
         <summary>━ blinkies </summary>
                <p align="center">
-      <img src=""width=200 /> <img src=""width=200 /> <img src=""width=200 /><br>
+      <img src="https://file.garden/Z7-3jqElunno9Cjt/rescources/blinkies%20and%20things/blinkies/blinkiesCafe-yR.gif"width=200 /> <img src="https://file.garden/Z7-3jqElunno9Cjt/rescources/blinkies%20and%20things/blinkies/blinkiesCafe-HX.gif"width=200 /> <img src="https://file.garden/Z7-3jqElunno9Cjt/rescources/blinkies%20and%20things/blinkies/blinkiesCafe-EC.gif"width=200 /> <img src="https://file.garden/Z7-3jqElunno9Cjt/rescources/blinkies%20and%20things/blinkies/blinkiesCafe-ju.gif"width=200 /> <img src="https://file.garden/Z7-3jqElunno9Cjt/rescources/blinkies%20and%20things/blinkies/blinkiesCafe-cs.gif"width=200 /> <img src="https://file.garden/Z7-3jqElunno9Cjt/rescources/blinkies%20and%20things/blinkies/f9569fad72f275b61e4f3af2ac6b083cbefa91f4.gifv"width=200 /> <img src="https://file.garden/Z7-3jqElunno9Cjt/rescources/blinkies%20and%20things/blinkies/a4068cef73b51c0654cfabc6426e97f1080fb23c.gifv"width=200 /> <img src="https://file.garden/Z7-3jqElunno9Cjt/rescources/blinkies%20and%20things/blinkies/2e5b388b0742e7f7b0d9b6fae7c062e6f4ac8109.gifv"width=200 />
     </details>
              <details>
         <summary>━ stamps </summary>
