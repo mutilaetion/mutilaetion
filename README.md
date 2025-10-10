@@ -10,7 +10,7 @@
 <img src="https://i.postimg.cc/mZzD845p/IMG_1136.png" align="center" width="25%" ><br>
 fagfreak / taken by my victim　҂ㅤ<img src="https://i.postimg.cc/8ChHP4fL/IMG_2002.gif" align="center" > <br>
 dni if under 15  ♱   or pro-hara　═╬<br>
- 𓈒 ꒪ if it wasnt obvious, <br>im a bit fucked in the head.<br>
+if it wasnt obvious, <br>im a bit fucked in the head.<br>
   <img src="https://i.postimg.cc/661dKgbD/IMG_1990.gif" align="center" width="8%" ><br>
 <details>
   <summary>━꒰ঌ ໒꒱  extend-ish(?)</summary>
