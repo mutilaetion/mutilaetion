@@ -48,7 +48,7 @@ Besides that, I am basically always offtab... And even if you W2i i probably won
            <details>
         <summary>━ buttons </summary>
      <p align="center">
-    </details>
+       <img src="https://file.garden/Z7-3jqElunno9Cjt/rescources/blinkies%20and%20things/buttons/5d32o8.gif"height=200 /> <img src="https://file.garden/Z7-3jqElunno9Cjt/rescources/blinkies%20and%20things/buttons/s61dt9.gif"height=200 /> <img src="https://file.garden/Z7-3jqElunno9Cjt/rescources/blinkies%20and%20things/buttons/m3tbly.gif"height=200 /> <img src="https://file.garden/Z7-3jqElunno9Cjt/rescources/blinkies%20and%20things/buttons/3w3aho.gif"height=200 /> <img src="https://file.garden/Z7-3jqElunno9Cjt/rescources/blinkies%20and%20things/buttons/ud9qyc.gif"height=200 /> <img src="https://file.garden/Z7-3jqElunno9Cjt/rescources/blinkies%20and%20things/buttons/cadavrbttn"height=200 /> <img src="https://file.garden/Z7-3jqElunno9Cjt/rescources/blinkies%20and%20things/buttons/exprimntbttn"height=200 /> <img src="https://file.garden/Z7-3jqElunno9Cjt/rescources/blinkies%20and%20things/buttons/91zyd2.gif"height=200 /> <img src="https://file.garden/Z7-3jqElunno9Cjt/rescources/blinkies%20and%20things/buttons/bhn4tl.gif"height=200 /> <img src="https://file.garden/Z7-3jqElunno9Cjt/rescources/blinkies%20and%20things/buttons/e8os2e.gif"height=200 /> <img src=""height=200 /> <img src=""height=200 /> <img src=""height=200 /> <img src=""height=200 /> <img src=""height=200 /> <img src=""height=200 /> <img src=""height=200 />
              <details>
         <summary>━ blinkies </summary>
                <p align="center">
