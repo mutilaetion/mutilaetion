@@ -22,7 +22,7 @@ if it wasnt obvious, <br>im a bit ${\textsf{\color{#f40179}fucked}}$ in the ${\t
   If it wasnt obvious, i am anti-anti and also dabble in darkshipping. Idgaf if you want to moralfag about it, I don't want to hear about it.<br>
   I am not a kodocon, I have never been a kodocon. Do not accuse me of being a kodocon. Yes, I am proship, but I draw the line at zoophilia. If you think fictional zoophilia is okay (liek feral) then dni, you're gross.<br>
 
-  If u want to add me anywhere then discord is your best bet, I am mutilaetion on discord aswell, however do keep in mind that this is an alt account and I will not be as active on there as on my main.<br>
+  If u want to add me anywhere then discord is your best bet, I am @tsumugitoucher on discord, however do keep in mind that this is an alt account and I will not be as active on there as on my main.<br>
   I am a gross individual, I have gross interests, I do gross things. Be aware<br>
     <br>
 ⋆˙⟡ c+h is always fine, but I'd rather not be covered. <br>
