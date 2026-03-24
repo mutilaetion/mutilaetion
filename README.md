@@ -23,21 +23,20 @@ if it wasnt obvious, <br>im a bit ${\textsf{\color{#f40179}fucked}}$ in the ${\t
 <details>
   <summary>━୨୧ ⏔⏔⏔⏔♡⏔⏔⏔⏔ ୨୧ ꒰ঌ ໒꒱  extend-ish(?)</summary> 
   <p align="center">
-  I mostly go by Harmless on this alt. but I am a hoarder at heart and have alot of names, same goes for pronouns sets.. I will link everything below :3<br>
-  I am 18 years old, born in 2007 (please keep in mind though that I can act very immature at times, soz)<br>
-  I really like roblox admins and hackers and myths, honestly more than I actually play the game... I really like Merely, he is my favorite.<br>
+ I go by 𝐝𝐨𝐜𝐭𝐫𝐢𝐧𝐞 or 𝐫𝐚𝐢𝐧𝐞𝐫. my pronouns are he / it / hy. alternation not necessary.
+<p align="center">
+currently 18 years old. 𝟎𝟑/𝟎𝟗/𝟐𝟎𝟎𝟕<br>
   If it wasnt obvious, i am anti-anti and also dabble in darkshipping. Idgaf if you want to moralfag about it, I don't want to hear about it.<br>
   I am not a kodocon, I have never been a kodocon. Do not accuse me of being a kodocon. Yes, I am proship, but I draw the line at zoophilia. If you think fictional zoophilia is okay (liek feral) then dni, you're gross.<br>
-
+<p align="center">
   If u want to add me anywhere then discord is your best bet, I am @hankreid on discord, however do keep in mind that this is an alt account and I will not be as active on there as on my main.<br>
   I am a gross individual, I have gross interests, I do gross things. Be aware<br>
     <br>
 ⋆˙⟡ c+h is always fine, but I'd rather not be covered. <br>
 if you ever see me anywhere thats not the protree with someone, PLEASE do not come up to me, I don't want to lose friends over this. <br>
 Besides that, I am basically always offtab... And even if you W2i i probably won't see it in time... I promise I'm not ignoring you I'm just busy doing fuckall
-    
-
-  DNI if youre pro-harassment, under 15, or anyone i've cut ties with. You know who you are.
+    <p align="center">
+  DNI if youre pro-harassment, under 15, or anyone i've cut ties with. You know who you are. I'm also iffy with pro-c folk, so I'd rather they don't interact either.
 
  
 </details>
