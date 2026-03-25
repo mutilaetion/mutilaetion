@@ -27,16 +27,15 @@ if it wasnt obvious, <br>im a bit ${\textsf{\color{#f40179}fucked}}$ in the ${\t
 <p align="center">
 currently 18 years old. 𝟎𝟑/𝟎𝟗/𝟐𝟎𝟎𝟕<br>
   If it wasnt obvious, i am anti-anti and also dabble in darkshipping. Idgaf if you want to moralfag about it, I don't want to hear about it.<br>
-  I am not a kodocon, I have never been a kodocon. Do not accuse me of being a kodocon. Yes, I am proship, but I draw the line at zoophilia. If you think fictional zoophilia is okay (liek feral) then dni, you're gross.<br>
+  HOWEVER!!! I draw the line at zoophilia. If you think zoophilia, whether fiction or not, is okay then do not interact w/ me, you're gross.<br>
 <p align="center">
-  If u want to add me anywhere then discord is your best bet, I am @hankreid on discord, however do keep in mind that this is an alt account and I will not be as active on there as on my main.<br>
+  If u want to add me anywhere then discord is your best bet, I am @hankreid on discord.<br>
   I am a gross individual, I have gross interests, I do gross things. Be aware<br>
     <br>
 ⋆˙⟡ c+h is always fine, but I'd rather not be covered. <br>
-if you ever see me anywhere thats not the protree with someone, PLEASE do not come up to me, I don't want to lose friends over this. <br>
 Besides that, I am basically always offtab... And even if you W2i i probably won't see it in time... I promise I'm not ignoring you I'm just busy doing fuckall
     <p align="center">
-  DNI if youre pro-harassment, under 15, or anyone i've cut ties with. You know who you are. I'm also iffy with pro-c folk, so I'd rather they don't interact either.
+  DNI if youre pro-harassment, under 15, or anyone i've cut ties with. You know who you are. I'm also iffy with pro-c folk, so I'd rather they don't interact either. kodocons thin ice
 
  
 </details>
