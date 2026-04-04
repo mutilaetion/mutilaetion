@@ -47,4 +47,6 @@ Besides that, I am basically always offtab... And even if you W2i i probably won
   <a href="https://mutilaetion.atabook.org/">atabook</a> <a href="https://ligature.straw.page/">strawpage</a> <a href="https://en.pronouns.page/@GEN0CIDER">en.prns</a> <a href="https://pronouns.cc/@raptophilia">prns.cc(wip)</a> 
   </details>
 <br>
+   <p align="center">
+   <img src="https://komarev.com/ghpvc/?username=mutilaetion&label=Profile%20views&color=f40179&style=flat" />
 <p align="center"><img src="https://i.postimg.cc/Bv0HG6dv/IMG-1056.png" /> 
